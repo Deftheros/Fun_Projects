@@ -1,2 +1,1 @@
-# Fun_Projects
-Projects I do for fun
+# https://shorturl.at/TTY9c
